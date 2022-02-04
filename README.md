@@ -13,3 +13,5 @@ That we'll live in harmony with the world and its creatures.
 And that we may all stand as equals.
 <br>
 
+I dreamed that our houses will be levitating above the earth and there will be no countries and borders.  
+Energy will be produced out of trash. We will stop global warming.  
