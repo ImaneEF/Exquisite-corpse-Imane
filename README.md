@@ -13,3 +13,6 @@ That we'll live in harmony with the world and its creatures.
 And that we may all stand as equals.
 <br>
 
+That we all find work as Data Scientist & AI experts 
+
+
