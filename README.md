@@ -17,3 +17,10 @@ I dreamed that our houses will be levitating above the earth and there will be n
 Energy will be produced out of trash. We will stop global warming.  
 
 That we all find work as Data Scientist & AI experts
+
+A world with many robots that we'll be able to program 
+<br>
+A future with less traffic
+<br>
+And no stress :smiley_cat:
+<br>
