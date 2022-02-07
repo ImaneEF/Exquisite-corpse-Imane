@@ -3,24 +3,26 @@
 I have a dream that...
 
 One day when I am hungry late at night, the fridge will be filled with tiramisu
-
-In the future war will be an exception instead of the rule in the world
-
-That people will help eachother unconditionally and without prejudicing.
 <br>
-That we'll live in harmony with the world and its creatures.
+In the future war will be an exception instead of the rule in the world
+<br> <br>
+People will help eachother unconditionally and without prejudicing.
+<br>
+We'll live in harmony with the world and its creatures.
 <br>
 And that we may all stand as equals.
+<br> <br>
+Our houses will be levitating above the earth. 
 <br>
-
-I dreamed that our houses will be levitating above the earth and there will be no countries and borders.  
+There will be no countries and borders.
+<br>  
 Energy will be produced out of trash. We will stop global warming.  
-
-That we all find work as Data Scientist & AI experts
-
-A world with many robots that we'll be able to program 
+<br> <br>
+We all find work as Data Scientist & AI experts
+<br> <br>
+The world will be filled with many robots that we'll be able to program 
 <br>
-A future with less traffic
+The future will have less traffic
 <br>
-And no stress :smiley_cat:
-<br>
+There is no stress anymore :smiley_cat:
+<br> <br>
