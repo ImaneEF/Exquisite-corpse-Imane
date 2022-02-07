@@ -14,8 +14,7 @@ And that we may all stand as equals.
 <br> <br>
 Our houses will be levitating above the earth. 
 <br>
-There will be no countries and borders.
-Energy will be produced out of trash. We will stop global warming.  
+There will be no countries and borders.<br>Energy will be produced out of trash. We will stop global warming.  
 <br> <br>
 We all find work as Data Scientist & AI experts
 <br> <br>
